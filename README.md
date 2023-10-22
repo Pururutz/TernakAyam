@@ -1,0 +1,2 @@
+# TernakAyam
+CaraBelajar
